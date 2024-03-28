@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SURUJ KALITA
+- 👋 Hi, I’m @ItAkSURUJ
 - 👀 I’m interested in ... DevOps, Networking, and Development. 
 - 📫 How to reach me ........https://www.linkedin.com/in/suruj-kalita-5ba1041b0/
 - ...........................https://www.youtube.com/channel/UCev5T1JoSt2WHrv6tJF6j7A
